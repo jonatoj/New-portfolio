@@ -1,2 +1,1 @@
-# new-portfolio
-# Thank you.
+# Thank you for stoping! Feel Free to Browse Around!
